@@ -1,0 +1,1 @@
+If you use these sprites, PLEASE credit AjTheYandere and Ein Had A Motive!
